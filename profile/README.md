@@ -1,4 +1,5 @@
 ### Match Masters Free Gifts January 2025
+ - [Match Masters Free Gifts](https://chat.whatsapp.com/GpPzHswgMWBDlwR7asiykP)
  - [Match Masters Free Gifts](https://srtech2020.in/match-masters-free-gifts.html/)
  - [Match Masters Free Gifts](https://srtech2020.in/match-masters-free-gifts.html/)
  - [Match Masters Free Gifts](https://srtech2020.in/match-masters-free-gifts.html/)
@@ -27,7 +28,7 @@ There are several ways to claim Free Gifts in Match Masters. Let’s look at eac
    - Follow these pages to stay updated.
    - Clicking on these links adds rewards directly to your account.
 
-   - [Match Masters Free Gifts](https://matchmaster.oneliuk.me/hCkF/a4a53b83/af_dp=matchmasters-253A-252F-252F&af_force_deeplink=true&pcode=1mdofmyrg6td2ye8kba6&c=XGj7G7FYx54)
+   - [Match Masters Free Gifts](https://chat.whatsapp.com/GpPzHswgMWBDlwR7asiykP)
    - [Match Masters on Instagram](https://srtech2020.in/match-masters-free-gifts.html/)
    - [Match Masters on Twitter](https://twitter.com/match_masters)
 
