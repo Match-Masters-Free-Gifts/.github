@@ -13,7 +13,7 @@ Free Gifts in Match Masters are special rewards that players can collect without
 
 Every month, Match Masters introduces new ways to claim these rewards. January 2025 is no exception, with fresh opportunities and exciting bonuses.
 
-#### How to Get Free Gifts in January 2025
+#### How to Get Free Gifts in April 2025
 
 There are several ways to claim Free Gifts in Match Masters. Let’s look at each method in detail:
 
